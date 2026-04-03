@@ -7,7 +7,7 @@ troncales acá estoy, actualmente trabajo haciendo soporte de una plataforma de 
 en el gobierno de la ciudad y en paralelo estudio. 
 Me gusta:
 - El deporte en general
-- El cine
+- El cine (Ir, no tengo la más mínima idea de películas)
 
 Gracias por leer!
 
