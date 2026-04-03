@@ -10,3 +10,5 @@ Me gusta:
 - El cine
 
 Gracias por leer!
+
+![IMG-20260403-WA0038](https://github.com/user-attachments/assets/571ea10e-5f2f-4e4d-aff6-59c958d18036)
