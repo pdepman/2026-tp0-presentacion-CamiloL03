@@ -6,8 +6,9 @@ de la provincia de Buenos Aires, Carlos Casares) y en 2023 entré a la UTN, pas�
 troncales acá estoy, actualmente trabajo haciendo soporte de una plataforma de gestión de colectivos
 en el gobierno de la ciudad y en paralelo estudio. 
 Me gusta:
-- El deporte en general
-- El cine (Ir, no tengo la más mínima idea de películas)
+- El deporte en general.
+- El cine (Ir, no tengo la más mínima idea de películas).
+- El rock nacional principalmente, aunque soy bastante fan del rap argentino tambien.
 
 Gracias por leer!
 
